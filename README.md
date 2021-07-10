@@ -1,0 +1,3 @@
+  Explanation of My Mango ice cream :-
+
+ I made a mango ice crem using simple ingredients. It is very easy. I used ripen mangoes to make my Ice cream sweeter. Boild milk is necessary to make an ice cream but cream is optional. It is used to make the ice cream creamier. I used sugar according to my taste. You can increase or decrease the quantity. I added cherries to my ice cream as I love eating them. Cherries are also optional. You can add other ingredients of your choise. My mango ice cream was very very tasty. But I hope you can make a better one.
